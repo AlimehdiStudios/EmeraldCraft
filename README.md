@@ -1,0 +1,2 @@
+# EmeraldCraft
+Best luanti game
